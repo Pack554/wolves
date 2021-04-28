@@ -1,6 +1,6 @@
 # Announcements - Wolves - April 2021
 
-## **Scouts Trash the Trash **
+## **Scouts Trash the Trash**
 
 Date: May 1st, 2021
 
@@ -18,7 +18,7 @@ Prize for group with biggest bag of trash 
 
 Ultimate Frisbee after - 10:00 AM - 11:00 AM
 
-## Den Meeting - Catch up
+## **Den Meeting - Catch up**
 
 Date: May 4th, 2021
 
@@ -56,7 +56,7 @@ Address:  21401 Gulf Fwy, Webster, TX 77598 
 
 Uniform: None
 
-## **Graduation **
+## **Graduation**
 
 Date: May 25th, 2021
 
